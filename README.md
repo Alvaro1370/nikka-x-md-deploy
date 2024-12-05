@@ -10,7 +10,7 @@
 ### Wanna learm how to use?
 ## contact: 
 <a href="https://wa.me/2349112171078">HAKI XER</a>
-get session id:
+## get session id:
 <a href="nikka-x.onrender.com">session id</a>
 
 
