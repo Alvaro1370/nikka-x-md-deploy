@@ -8,7 +8,10 @@
 ##### SUHAIL SER
 
 ### Wanna learm how to use?
-##contact: <a href="https://wa.me/2349112171078">HAKI XER</a>
+## contact: 
+<a href="https://wa.me/2349112171078">HAKI XER</a>
+get session id:
+<a href="nikka-x.onrender.com">session id</a>
 
 
 ### only to be used for nikka and alya bots 
